@@ -1,1 +1,3 @@
 # cex-rebuild
+Let's pull it off in next 2 months, it's been too long I'm not regular in coding need to  buckle up and get back on track....
+Let's begin the countdown
